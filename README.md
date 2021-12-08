@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @louisburgener
+- 👀 I’m interested in ... video games, computers, outdoors (occasionally), and Formula 1!
+- 🌱 I’m currently learning ... c+, python, java
+- 💞️ I’m looking to collaborate on ... we'll see!
+- 📫 How to reach me ... louis.burgener21@gmail.com
